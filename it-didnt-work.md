@@ -1,6 +1,6 @@
 # It didn't work!
 
-If someone just linked you to this, you have tested positive for Stupid Bitch disease. The primary symptom is saying that your code "didn't work" with no explanation, or otherwise doing a really shitty job when asking a question or getting help with a code issue. As you can see, this can have serious consequences for the friends and loved ones of the affected.
+If someone just linked you to this, you have tested positive for Stupid Idiot disease. The primary symptom is saying that your code "didn't work" with no explanation, or otherwise doing a really shitty job when asking a question or getting help with a code issue. As you can see, this can have serious consequences for the friends and loved ones of the affected.
 
 Thankfully, there is a cure. Please take the following prescription:
 
